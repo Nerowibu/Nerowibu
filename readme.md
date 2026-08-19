@@ -1,3 +1,3 @@
 # Hi, I'm Nerowibu!
 
-[![Discord](https://shields.io)](https://discord.com)
+[Click here to add me on Discord!](https://discord.com)
