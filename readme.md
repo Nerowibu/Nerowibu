@@ -1,3 +1,4 @@
 # Hi, I'm Nerowibu!
 
-**Contact Me on Discord:** [Click here to open my Discord Profile](https://discordapp.com)
+💬 **Add my Discord:** `neroxd9999`
+🔗 **Join my Discord Space:** [Click here to join!](https://discord.gg/UzevbuEF4z)
